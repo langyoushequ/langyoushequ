@@ -1,7 +1,7 @@
 狼友社区发布页
 当前网址：https://langyou01.com
 
-本站招运营合伙人，联系邮箱meizemin1989@gmail.com
+本站诚招运营合伙人，一起合作共赢，联系邮箱meizemin1989@gmail.com
 
 最近屏蔽厉害，也希望大家能学会发送邮件获取新地址，本站邮箱meizemin1989@gmail.com
 
